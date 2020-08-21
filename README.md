@@ -1,0 +1,1 @@
+Okay so, this is the database of **Comedy Web**, one of my projects that I have been working on since May 2020. There's many different things to check out here, and not that much. I might create a wiki for it, who knows.
